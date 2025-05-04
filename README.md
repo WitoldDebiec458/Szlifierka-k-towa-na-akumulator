@@ -1,0 +1,1 @@
+# Szlifierka-k-towa-na-akumulator
